@@ -1,2 +1,2 @@
-![quiller](./bixo-estranho.png)
+![quiller](./aidentu.webp)
 
